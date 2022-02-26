@@ -1,7 +1,3 @@
-# The-Menu
-
-26th MARCH LAST COUPLE FIELDS HAVE EYES PART 2 TICKETS AVAILABLE £25 EACH. 🎟
-
 🇬🇧 🔟🔟 
 Z Tree (Zkittlez x Lemon Tree) 🌈🍋🌲
 3.5 £40
@@ -10,7 +6,7 @@ Z Tree (Zkittlez x Lemon Tree) 🌈🍋🌲
 Z £250
 2z £450
 4z £850
-9z £1650
+9z £1600
 
 Zips only 
 Cookie Dawg 
@@ -23,25 +19,20 @@ Banana Mac
 Jelly Breath 
 Strawberry Milk 
 Jaffa Glue Pie
-Wappa  
+Wappa  
 Mimosa Cake 
 Choc MintOG 
 Banana OG 
-Dosido  
-Cookies  
-Skywalker 
-Cheese
 Alien sour apples 
 Mokum Tulip 
 Runts 
 Original Zkittlez (limited)
 Sticky Buns 
-Orange Kush  
-Lemon Zkittlez  
-Gorilla Zkittlez  
-Blue Cherry  
+Orange Kush  
+Lemon Zkittlez  
+Gorilla Zkittlez  
+Blue Cherry  
 Strawberry Lemonade 
-
 
 🇺🇸🔝📈🔥 £70
 @Tenco 
@@ -56,14 +47,14 @@ Strawberry Lemonade
 • Brown Boba 
 • Gustavo £80
 • Wazabi v3 £80
-• Blue Zushi v3 £90 2x£170
-• Yellow Zushi v3 £90 2x£170
+• Blue Zushi v3 £80
+• Yellow Zushi v3 £80
 @Calix
 • Biscoff 
 • Ozk
-• Zkittlez £90 2x£170
+• Zkittlez £80
 @Karma 
-• Zheetos £90 2x£170
+• Zheetos £80
 @Burningropes
 • Cherry Ropes 
 • Lasos
@@ -76,14 +67,14 @@ All with Packs
 • Zoy ½£260 z£500
 • Cherry Ropes ½£260 z£500
 • Blue Boba  ½£260 z£500
-• Candy Floss ½£260 z£500
-• Blue Zushi ½£300 z£580
-• Yellow Zushi ½£300 z580
+• Candy Floss ½£260 
+• Blue Zushi ½£300 z£550
+• Yellow Zushi ½£300 z550
 • Biscoff ½£260 z£500
 • Zkittlez ½£290 z£550
-• Zheetos ½£300 z£580
-• Wazabi ½£280 z£520
-• Gustavo ½£280 z£520
+• Zheetos ½£300 z£550
+• Wazabi ½£280 z£500
+• Gustavo ½£280 z£500
 • Ozk ½£260 z£500
 • Green Boba ½£260 z£500
 • Brown Boba ½£260 z£500
@@ -98,6 +89,18 @@ Qps available inquiry which ones are instock
 
 Cali dust pack 28g £200
 _____________________________
+Magic Mushrooms 🪄🍄 1g £10
+_____________________________
+🇺🇸 VAPE PENS £60
+1g 1000mg disposable Pen&Cart
+@The1010boys
+• Jack Herer
+• Sour Diesel
+• Gelato 41
+• Runtz 
+• OG Kush
+• Zkittlez
+_____________________________
 🍷🇺🇸THC Syrup Protenazine 50ml 1000mg £25
 _____________________________
 🍰 Edibles 🇺🇸🍓🍋🍰
@@ -105,9 +108,10 @@ Strawberry Lemon Drizzle Loaf Cake
 Made to order 1day notice.
 £35 Loaf 
 _____________________________
-🍬Orange County CBD
+⚕Orange County CBD🍬
 
 CBD Vape Pens Disposable 600mg 
+£20 each min order 3 
 • Alien OG
 • Lemonade 
 • Strawberry Kush 
@@ -115,14 +119,32 @@ CBD Vape Pens Disposable 600mg
 • Blueberry Muffin 
 • Zkittlez
 • Mango Haze
+• Banana Kush
+• Mimosa 
+• Gelato 
+
+Mini CBD Grab bag 100mg £4
+• Bears 
+• Cubez 
+• Hearts 
+
+CBD Grab Bag 200mg £12
+• Worms
+• Bears 
+• Buttons
+• Rings 
+• Cherry
+• Bottles 
+• Cubes 
+• Strawberrys
 
 CBD Gummy Tub
 400mg £20
 800mg £25
 1200mg £30
-• Strawberries 
-• Rings 
-• Bottles 
+1600mg £40
+3200mg £65
+4800mg £80
 _____________________________
 ⚕️RSO 10ml £300 
 _____________________________
@@ -135,15 +157,19 @@ Accessories🛠
 • Vibes Cubano 7g Cones £3 
 • Raw Clipper Lighter £1
 _____________________________
+🚬 Nicotine Vapes disposable 
+600 puffs £5
+Magic Bar - Cotton Candy
+Geek Bar - Strawberry Ice Cream
+_____________________________
 Brand New | Factory Sealed | Unopened 
 
 🎮
-PS5 Disc Edition 
-PS5 Digtial Edition 
+PS5 Disc Edition £550
+PS5 Digtial Edition £480
 PS5 DualSense Controller £40
-Xbox Series X 
-Xbox Fridge £TBC
-PS5 1TB internal Hard Drive 
+Xbox Fridge £150
+PS5 1TB internal Hard Drive £180
 
 🃏Pokemone TGC: Elite Trainer Box
 Celebrations (25th Anniversary) £70 
