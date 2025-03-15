@@ -89,7 +89,6 @@ D-lish x Papaya
 🇺🇸 Premium Cali Flower 🔝🔥
 
 @Tenco
-
 ✅ Wagu – 3.5g for £60
 
 
@@ -102,7 +101,6 @@ D-lish x Papaya
 14g – £280
 
 28g – £550
-
 ✅ Zoy
 
 ✅ Organic Orange
@@ -115,7 +113,6 @@ D-lish x Papaya
 14g – £350
 
 28g – £600
-
 ✅ Zkittlez @Calix
 
 ✅ Yellow Zushi
@@ -136,7 +133,6 @@ D-lish x Papaya
 
 
 Cali Jars (No 1:1 Required) £200
-
 ✅ Blue Zushi
 
 ✅ Yellow Zushi
