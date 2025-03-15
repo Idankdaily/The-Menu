@@ -92,6 +92,7 @@ D-lish x Papaya
 
 ✅ Wagu – 3.5g for £60
 
+
 🔥 Exotic Strains
 
 💰 Pricing:
@@ -102,10 +103,10 @@ D-lish x Papaya
 
 28g – £550
 
-
 ✅ Zoy
 
 ✅ Organic Orange
+
 
 💰 Top-Tier Cali Pricing:
 
@@ -114,7 +115,6 @@ D-lish x Papaya
 14g – £350
 
 28g – £600
-
 
 ✅ Zkittlez @Calix
 
@@ -133,6 +133,7 @@ D-lish x Papaya
 ✅ Xyz
 
 🚨 (Blue Zushi & Nishi are 1:1 strains – equal amount of another Cali must be purchased with them.)
+
 
 Cali Jars (No 1:1 Required) £200
 
