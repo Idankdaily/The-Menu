@@ -1,177 +1,284 @@
-📎MINIMUM ORDER £100...
+🔥 Premium Product Menu 🔥
+
+📍 Collection Available | 🚚 Delivery with Minimum Order | 🌍 Worldwide Postals
+💰 Crypto Accepted: BTC | XRP | ETH | USDT & More
+🏦 Bank Transfers: +20% Fee
 
 
-FIELDS HAVE EYES PART 3 EVENT TICKETS £30 PER PERSON.. LOADS OF UKS TOP VENDORS WILL BE THERE..
-LIMITED TICKETS AVAILABLE..🎟️
-29th JULY..
+---
 
-🇬🇧 🔟🔟 
-@Opax 3.5 £40 7g £70
-• The Governor (14g £150 28g £280)
+⚠️ ORDER POLICY
 
-• Gelato 33 🍨
-3.5g £30 
-7g £50
-14g £100
-28g £180
+Minimum Order: £100 (before postage)
 
-• ZTree (Zkittlez x LemonTree) 🌈🍋🌲
-3.5g £40
-7g £70
-14g £130
-28g £240
+📦 Next Day Delivery (Mon-Fri): £15 (Tracked & Signed, before 1PM)
 
-🇬🇧 Zips Only ⬇️ £220 (9 Mixed £1600)
-Bubblegum Runtz 
-Wedding Cake 
-Original Zkittlez 
-Gmo Cookies
-Sour Diesel 
-Z Cube
+📦 Saturday Delivery: £20
 
-🇺🇸🔝📈🔥 
-@Qcfarms
-• Zkittlez £70
-@DeepeastxWizardtree
-• Zoap £70
-@Connectszz
-• Yellow Yazoo £70
-@Calix 
-• Xkittlex £70
-• Red Beard £70
-@Jungle Boyz 
-• Triangle Canyon £60
-• Sour Apple Killer £60
-@Shebmoney  
-• Bubblegum Nerdz £60
-@Tenco 
-• Zoy v3 £60
-@Runtz 
-• Dominos (Team10 x  Runtz) £60
 
-All with Packs 
-• Yellow Yazoo ½£260 z£500
-• Zoap (Qps £1600 Lb £6000)
-• Red Beard ½£260 z£500
-• Xkittlex ½£280 z£530
-• Zkittlez ½£280 z£530
-• Zoy ½£260 z£500
-@Jungle Boyz 
-• Triangle Canyon £450 2x£800
-• Sour Apple Killer £450 2x£800
 
-Uk dust 28g £130
+---
 
-Idankdaily Cannon 1.5-2g glass tip £30
-• Zarburst 
-• Zlime 
-• Tropical Skilatti 
-_________
-🍫 Soft Hash
-• Batman 
-• Hulk
-10g £80
-50g £300
-100g £550
-(Bulk on request) 
-_________
-🇺🇸 VAPE PENS £60 (10x£500 50x£2000)
-1g 1000mg disposable Pen&Cart
-@The1010boys
-• Jack Herer 
-• Sour Diesel 
-• OG Kush 
-• Zkittlez
-• Runtz 
-• Gelato 41 
-_________
-🍷🇺🇸THC Syrup Protenazine 50ml 1000mg £25
-_________
-⚕Orange County CBD🍬
+🍩 Donut King Hash Hole Prerolls 👑
 
-CBD Vape Pens Disposable 600mg 
-£20 each (minimum 3)
-• Alien OG
-• Lemonade 
-• Strawberry Kush 
-• Wedding Cake 
-• Blueberry Muffin 
-• Zkittlez
-• Mango Haze
-• Banana Kush
-• Mimosa 
-• Gelato 
+Premium Flower x Extract blends
 
-Mini CBD Grab bag 100mg £4
-• Bears 
-• Cubez 
-• Hearts 
+✅ Flavors:
 
-CBD Grab Bag 200mg £12
-• Worms
-• Bears 
-• Buttons
-• Rings 
-• Cherry
-• Bottles 
-• Cubes 
-• Strawberrys
+Skilatti x Zkittlez
 
-CBD Gummy Tub
-400mg £20
-800mg £25
-1200mg £30
-1600mg £40
-3200mg £65
-4800mg £80
+D-lish x Papaya
 
-Others CBD Products available enquire we will be able to assist.
-_________
-⚕️RSO 10ml £300 
-_________
-Accessories🛠
-• Smokus Focus Jar 🔎💡Large £40
-• RAW BLACK Rolling Papers 
-  - 1 for £1
-  - 50 box for £35 
-• Raw Black Filter Box £10
-• Vibes Cubano 7g Cones £3 
-• Raw Clipper Lighter £1
-_________
-🚬 Nicotine Vapes disposable 
-600 puffs £5
-Magic Bar - Cotton Candy
-Geek Bar - Strawberry Ice Cream
-_________
-Brand New | Factory Sealed | Unopened 
 
-🎮
-PS5 Disc Edition £520
-Xbox Fridge £150
-PS5 1TB internal Hard Drive £150
+💰 Pricing:
 
-🃏Pokemone TGC: Elite Trainer Box
-Celebrations (25th Anniversary) £70 
-Fusion Strike £60
-Evolving Skies £60
+1 for £70
 
-🃏Pokemone TGC: Celebrations Premium Figure (25th Anniversary) Pikachu VMAX £80
-_________
-Collection from Croydon📍
-Deliveries 🚚 
+2 for £120
 
-Postals Worldwide 🌍📦📮✉ 
-Mon - Fri
-Next Day Guaranteed Before 1pm - Tracked & Signed £10
+10 for £500
 
-Bitcoin, XRP,  ETH, USDT & other crypto currencies Accepted 💱
 
-Bank Transfer available for regular customers. 🏦
-_________
-Add me on Insta! : idankdaily_
-https://www.instagram.com/idankdaily_/
 
-Add me on Snapchat! Username: gepsoh https://www.snapchat.com/add/gepsoh
+---
 
-Join the telegram channel:
-https://t.me/+MDsDZ9Xj2mA0ZDI0
+🌿 Premium UK Flower 🇬🇧
+
+🔥 Top-shelf strains from UK growers
+
+
+@Opax
+
+✅ La Bomba – £280 (28g)
+
+✅ Sour Power OG – £160 (14g left!)
+
+✅ Rainbow Gelato – £300 (28g)
+
+✅ Zipaya Oz – £310 (28g)
+
+✅ Peach Oz – £300 (28g)
+
+💰 Pricing:
+
+7g – £90
+
+14g – £160
+
+28g – Listed Prices
+
+
+@KewGardens
+
+✅ After Eightz
+
+✅ Rubix
+
+💰 Pricing:
+
+7g – £80
+
+14g – £150
+
+28g – £280
+
+
+
+---
+
+🇺🇸 Premium Cali Flower 🔝🔥
+
+@Tenco
+
+✅ Wagu – 3.5g for £60
+
+🔥 Exotic Strains
+
+💰 Pricing:
+
+7g – £150
+
+14g – £280
+
+28g – £550
+
+
+✅ Zoy
+
+✅ Organic Orange
+
+💰 Top-Tier Cali Pricing:
+
+7g – £180
+
+14g – £350
+
+28g – £600
+
+
+✅ Zkittlez @Calix
+
+✅ Yellow Zushi
+
+✅ Nishi (1:1 Required)
+
+✅ Blue Zushi (1:1 Required)
+
+✅ Angel Delight
+
+✅ Black Zushi
+
+✅ Zozi 11
+
+✅ Xyz
+
+🚨 (Blue Zushi & Nishi are 1:1 strains – equal amount of another Cali must be purchased with them.)
+
+Cali Jars (No 1:1 Required) £200
+
+✅ Blue Zushi
+
+✅ Yellow Zushi
+
+✅ Nishi
+
+
+---
+
+🔥 Live Resin Vapes
+
+💰 Pricing:
+
+1x – £45
+
+2x – £80
+
+10x – £350
+
+30x – £850
+
+50x – £1,250
+
+
+✅ Flavors:
+
+La Bomba
+
+Nuclear Bomb
+
+Rainbow Gelato
+
+Sour Power OG
+
+Zipaya Oz
+
+Peach Oz
+
+
+
+---
+
+🔥 Pure Preroll Selection
+
+✅ Skilatti Preroll – £20
+
+
+---
+
+🌈🍬 Edibles & Confections
+
+🚀 DEATH STARS
+
+💀 500mg THC per sweet – £10 (Extreme Potency!)
+
+🍄🍫 Polkadot Mushroom 4g Chocolate Bars – £30
+
+✅ Flavors:
+
+Crunch
+
+Fruity Pebbles
+
+Lucky Charms
+
+Cookies & Cream
+
+
+
+---
+
+🛠 Smoking Accessories
+
+🔥 RAW Rolling Products
+
+RAW Gold Ethereal
+
+1 for £3 | 50 for £120
+
+
+RAW Black Rolling Papers
+
+1 for £1 | 50 for £35
+
+
+RAW Black Filter Box – £15
+
+
+
+---
+
+📺 ULTRA-ENHANCED AMAZON FIRE TV STICK
+
+🎬 10,000+ Movies & 8,000+ TV Series (Netflix, Prime, Sky, Sports & More!)
+
+💰 Subscription Pricing:
+
+1 Year – £50
+
+10 Subscriptions – £350
+
+25 Subscriptions – £650
+
+
+
+---
+
+⚕️ CBD Product Range
+
+🩺 Available for all needs! Contact us for details.
+
+✅ CBD Flower
+✅ CBD Vapes
+✅ CBD Gummies
+✅ CBD Balms & Muscle Rubs
+✅ CBD E-Liquid
+✅ CBD Oils
+✅ CBD Capsules
+✅ CBD Prerolls
+
+
+---
+
+📦 Ordering & Payment
+
+✅ Collection Available
+✅ Delivery with Minimum Order
+✅ Tracked & Signed Next-Day UK Post
+
+💰 Crypto Payments Accepted:
+
+BTC | XRP | ETH | USDT & More
+
+
+🏦 Bank Transfers (+20% Fee Added to Order Total)
+
+
+---
+
+📲 Join Our Community & Stay Updated!
+
+📢 Telegram Channel:
+👉 https://t.me/+MDsDZ9Xj2mA0ZDI0
+
+📸 Instagram:
+👉 @idankdaily_
